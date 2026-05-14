@@ -2,4 +2,4 @@
 O GERIAA é um grupo de pesquisa, ensino e extensão da **Universidade Federal de Santa Maria - Campus Cachoeira do Sul**.
 
 ## Redes Sociais
-* [Instagram](www.instagram.com/geriaa_ufsmcs)
+* [Instagram](https://instagram.com/geriaa_ufsmcs)
